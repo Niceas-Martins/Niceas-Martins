@@ -24,4 +24,4 @@
 
 
 
-Na busca de me tornar um profissional de excelência no que faço!!. 
+Na busca de me tornar um profissional de excelência!!
